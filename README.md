@@ -13,7 +13,7 @@
   <p align="center">$${\color{#527ee6} MirrorPrns \space or \space Any \space besides4neutral \space (ex. theyit}$$
     <p align="center">$${\color{#4149d5} I \space love \space Supernatural, \space Marvel , \space UT/DR(aus2) , \space unstable/lifesteal , \space and \space fps/indie games \space :) }$$
       <p align="center">$${\color{#ff3989} I \space won't \space be \space playing \space often \space because \space i \space usually \space dont \space get \space interacted \space and \space im \space bad \space with \space interacting \space myself \space :')} $$
-            <p align="center">$${\color{#ed1863} space i \space saw \space a \space rlly \space cool \space spoke \space that \space reminded \space me \space of \space a \space certain \space artist \space and \space a \space very \space cool \space roaring \space knight \space one} $$
+            <p align="center">$${\color{#ed1863} i \space saw \space a \space rlly \space cool \space spoke \space that \space reminded \space me \space of \space a \space certain \space artist \space and \space a \space very \space cool \space roaring \space knight \space one \space how \space do \space you \space guys \space make \space such \space cool \space ponys...} $$
                         <p align="center">$${\color{8445BCFF} graphics \space by \space @m4ceattack \space on \space tumblr} $$
                                                 <p align="center">$${\color{8445BCFF} system} $$
 
