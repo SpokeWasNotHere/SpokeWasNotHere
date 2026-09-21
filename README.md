@@ -15,6 +15,8 @@
       <p align="center">$${\color{#ff3989} I \space won't \space be \space playing \space often \space because \space i \space usually \space dont \space get \space interacted \space and \space im \space bad \space with \space interacting \space myself \space :')} $$
             <p align="center">$${\color{#ed1863} space i \space saw \space a \space rlly \space cool \space spoke \space that \space reminded \space me \space of \space a \space certain \space artist \space and \space a \space very \space cool \space roaring \space knight \space one} $$
                         <p align="center">$${\color{8445BCFF} graphics \space by \space @m4ceattack \space on \space tumblr} $$
+                                                <p align="center">$${\color{8445BCFF} system} $$
+
                         
 
 
