@@ -5,6 +5,8 @@
    <p align="center">
  <img width="430" height="250" alt="tumblr_0df2bc062927afdf30c74395568ec757_aed7fea6_1280" src="https://github.com/user-attachments/assets/39f174aa-b8b9-4bd2-8b89-9134cd2ec315" />
             <p align="center"> <a href="https://spokewasnothere.atabook.org/">ATABOOK</a> ۶۟ৎ 
+                                    <p align="center">$${\color{8445BCFF} sign \space pls!!!!} $$
+
 
    <p align="center">
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=PAPYRUS&size=27&pause=1000&color=6255E2&center=true&vCenter=true&random=true&width=435&lines='+but+isn%E2%80%99t+it+a+welcome+change+in+pace+'%3F](https://readme-typing-svg.demolab.com?font=PAPYRUS&size=27&pause=1000&color=FF1E77&center=true&vCenter=true&random=true&width=435&lines='+the+trumpeting+of+love+and+war+'" alt="Typing SVG" /></a>
