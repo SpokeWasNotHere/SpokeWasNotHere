@@ -2,12 +2,13 @@
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=PAPYRUS&size=27&pause=1000&color=6255E2&center=true&vCenter=true&random=true&width=435&lines='+but+isn%E2%80%99t+it+a+welcome+change+in+pace+'%3F" alt="Typing SVG" /></a>
 </p>
 
-
    <p align="center">
  <img width="430" height="250" alt="tumblr_0df2bc062927afdf30c74395568ec757_aed7fea6_1280" src="https://github.com/user-attachments/assets/39f174aa-b8b9-4bd2-8b89-9134cd2ec315" />
-     <p align="center">
+            <p align="center"> <a href="https://spokewasnothere.atabook.org/">ATABOOK</a> ۶۟ৎ 
+
+   <p align="center">
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=PAPYRUS&size=27&pause=1000&color=6255E2&center=true&vCenter=true&random=true&width=435&lines='+but+isn%E2%80%99t+it+a+welcome+change+in+pace+'%3F](https://readme-typing-svg.demolab.com?font=PAPYRUS&size=27&pause=1000&color=FF1E77&center=true&vCenter=true&random=true&width=435&lines='+the+trumpeting+of+love+and+war+'" alt="Typing SVG" /></a>
-</p>
+
   <p align="center">$${\color{#9c46ca} i \space suggest \space to \space look \space at \space my \space links, \space it \space has \space a \space lot \space more \space info!}$$
  <p align="center">$${\color{#527ee6} I \space go \space by \space Castiel \space or \space Spoke}$$
   <p align="center">$${\color{#527ee6} MirrorPrns \space or \space Any \space besides4neutral \space (ex. theyit}$$
