@@ -17,6 +17,12 @@
     <p align="center">$${\color{#4149d5} I \space love \space Supernatural, \space Marvel , \space UT/DR(aus2) , \space unstable/lifesteal , \space and \space fps/indie games \space :) }$$
       <p align="center">$${\color{#ff3989} I \space won't \space be \space playing \space often \space because \space i \space usually \space dont \space get \space interacted \space and \space im \space bad \space with \space interacting \space myself \space :')} $$
             <p align="center">$${\color{#ed1863} i \space saw \space a \space rlly \space cool \space spoke \space that \space reminded \space me \space of \space a \space certain \space artist \space and \space a \space very \space cool \space roaring \space knight \space one \space how \space do \space you \space guys \space make \space such \space cool \space ponys} $$
+
+   <p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=316yguizxcwgfin7qfjat7oddaye&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=316yguizxcwgfin7qfjat7oddaye&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=ffeac7&bar_color_cover=false">
+  </a>
+</p>
                         <p align="center">$${\color{8445BCFF} graphics \space by \space @m4ceattack \space on \space tumblr} $$
                                                 <p align="center">$${\color{8445BCFF} system} $$
 
